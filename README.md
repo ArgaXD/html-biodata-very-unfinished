@@ -1,1 +1,1 @@
-the HTML still unfinished i will continued it later
+the HTML still unfinished i will continue it later
